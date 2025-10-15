@@ -4,7 +4,7 @@ STILL MAGIC MANS NUMBER ONE FAN
 - ------------------------------------------------------------------------------------------------------
 I have a bunch of different interests ! !
 - ------------------------------------------------------------------------------------------------------
-Draw on my strawpageeee!! Please drop a lil wireface (I ACTUALLY DUNNO IF THE DRAWING GIMMICKS WORK OR NOT...)
+Draw on my strawpageeee!! Please drop a lil wireface 
 - ------------------------------------------------------------------------------------------------------
 I am colorblind so pony town tints are awful to figure out 😭..
 
