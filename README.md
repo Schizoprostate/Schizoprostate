@@ -1,4 +1,5 @@
-![check](https://25.media.tumblr.com/fd4f0470003b443436f819bd9afad950/tumblr_miyz6cprtB1r8swmoo1_500.gif)
+![check](<img width="600" height="471" alt="image" src="https://github.com/user-attachments/assets/07c50a53-4035-47b9-8954-8a8b2da2c8a3" />
+)
 
 Draw on my strawpage and get a kiss!
 
